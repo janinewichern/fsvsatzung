@@ -9,7 +9,7 @@ Der Verein will Mitglied des Landessportbundes Niedersachsen e.V. und der zustä
 
 Der Verein verfolgt ausschließlich und unmittelbar gemeinnützige Zwecke und zwar insbesondere durch die Pflege und Förderung des Amateursports. 
 
-Er ist politisch, religös und rassisch neutral.
+Er ist politisch, religiös und rassisch neutral.
 
 Der Verein ist selbstlos tätig und verfolgt nicht in erster Linie eigenwirtschaftliche Zwecke.
 
